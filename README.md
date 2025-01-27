@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kunal12kumar
-:joy:
+- :joy:
 - 👀 I’m interested in Exploring new idea and technology.
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
